@@ -2,5 +2,5 @@
 
 
 
-``dick no dick``
+fuck shit.
 
