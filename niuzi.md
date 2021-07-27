@@ -4,5 +4,5 @@
 
 fuck shit.
 
-here is [README](./README.md)
+here is [README](./README)
 
